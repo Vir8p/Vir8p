@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vir8p
 - 👀 I’m interested in Technical Skills
 - 🌱 I’m currently learning AI Modules
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to for a job 
 - 📫 Reach me at my email  virendrapateldhiroul@gmail.com
 
 <!---
